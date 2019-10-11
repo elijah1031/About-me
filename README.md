@@ -10,4 +10,7 @@ i would like to attend Bridgewater Ttate and as my university and have a good li
 as it helps kill off time. some of my favorite teams include (Juventus) for Futball and Basketball(Golden State) I aslo love to Cook my meals!
 
 # Skills
-*Basketball
+* Basketball
+* Video gmaes
+* Cooking
+* Writitng
