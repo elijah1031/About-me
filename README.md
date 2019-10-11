@@ -14,3 +14,13 @@ as it helps kill off time. some of my favorite teams include (Juventus) for Futb
 * Video gmaes
 * Cooking
 * Writitng
+
+# My Favorite Books
+* Stephen King IT
+* Stephen King Pet Semetery
+* Very Hungary Catipillar
+
+# Favorite Website
+* Coolmathgames.com
+* Youtube.com
+* Amazon.com
